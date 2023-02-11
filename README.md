@@ -1,1 +1,1 @@
-Hello this is my first project to upload to github and the start of my successful journy inshallah <3!
+Hello this is my first project to upload to github and the start of my successful journey inshallah <3!
